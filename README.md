@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me hussaihahid0@gmail.com
 - Github   -https://github.com/hussain4757
-- Twitter  -https://twitter.com/hussain475 71234
+- Twitter  -https://twitter.com/Hussain47571234
 - Linkedin -https://www.linkedin.com/in/hussain-shahid-67b984287/
 - Facebook -https://www.facebook.com/profile.php?id=100093887089881
 - Instagram -https://www.instagram.com/btw._.hussainn/
