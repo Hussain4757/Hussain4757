@@ -8,8 +8,8 @@
 - Twitter  -[https://twitter.com/Hussain47571234](https://x.com/Hussain47571234)
 - Linkedin -https://www.linkedin.com/in/hussain-shahid-67b984287/
 - Facebook -https://www.facebook.com/profile.php?id=61561238407588
-- Instagram -https://www.instagram.com/btw._.hussainn/
-- 
+- Instagram -https://www.instagram.com/webdevcody4757/
+  
 <!---
 Hussain4757/Hussain4757 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
