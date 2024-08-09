@@ -10,7 +10,3 @@
 - Facebook -https://www.facebook.com/profile.php?id=61561238407588
 - Instagram -https://www.instagram.com/webdevcody4757/
   
-<!---
-Hussain4757/Hussain4757 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
